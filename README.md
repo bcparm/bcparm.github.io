@@ -1,1 +1,0 @@
-# bcparm.github.io
